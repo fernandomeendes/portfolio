@@ -22,7 +22,7 @@
 
 Feel free to reach out if you have any questions, feedback, or collaboration opportunities:
 - **Email:** mendes-fernando@sapo.pt
-- **LinkedIn:** [your-linkedin-profile](https://www.linkedin.com/in/fernandomeendes)
+- **LinkedIn:** [Fernando A. Mendes](https://www.linkedin.com/in/fernandomeendes)
 
 ---
 
